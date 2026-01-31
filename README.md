@@ -70,9 +70,9 @@ Screenshots and certificates are included within the portfolio under the **Proje
 
 ## 📬 Contact
 
-- **LinkedIn:** https://www.linkedin.com/in/niket-thakur-389515285  
+- **LinkedIn:** https://www.linkedin.com/in/niket-thakur5
 - **GitHub:** https://github.com/niketkrthakur  
-- **Email:** niketkrthakur@gmail.com  
+- **Email:** niketkrthakur24@gmail.com  
 
 ---
 
